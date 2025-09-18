@@ -1,1 +1,1 @@
-# Insightstream:Navigate the News Landscape 
+# Insightstream:Navigate the News Landscape
